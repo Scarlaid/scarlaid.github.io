@@ -1,5 +1,4 @@
 ![Untitled](https://github.com/Scarlaid/Scarlaid/assets/90851437/c089fe1a-3879-47d3-9e1b-29ab7f4f62e3)
-###
 <h3 align="center">Welcome to my profile! Have a look around.</h3>
 <h5 align="center">Nothing special, just a guy want to be decent 🤙</h5>
 
